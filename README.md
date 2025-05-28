@@ -29,8 +29,8 @@ The project aims to explore unique interface interactions and visual storytellin
 ## 📬 Contact
 
 Want to collaborate or leave feedback?  
-Email: *[your-email@example.com]*  
-LinkedIn: *[your-linkedin-url]*
+Email: *[nurasylbazarbai564@gmail.com]*  
+Portfolio: [github.com/Nurassyl28](https://github.com/Nurassyl28)
 
 ---
 
