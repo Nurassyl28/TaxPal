@@ -35,3 +35,6 @@ LinkedIn: *[your-linkedin-url]*
 ---
 
 © 2025 Nurassyl — All rights reserved.
+
+<img width="1710" alt="Screenshot 2025-05-28 at 21 03 40" src="https://github.com/user-attachments/assets/e75e6fcf-4aa3-4e90-937e-d308ca51a8c7" />
+
